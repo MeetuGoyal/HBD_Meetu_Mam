@@ -1,8 +1,7 @@
-Happy Birthday Sir ji
+Happy Birthday Madam
 
 A Happy Birthday Animation for you
 
-URL: https://hbdsunilbhaiya.github.io/happybirthday//
-
-# Happy Birthday to you Sunil Bhaiya
+URL: https://meetugoyal.github.io/HBD_Meetu_Mam/
+# Happy Birthday to you Meetu Mam
 
